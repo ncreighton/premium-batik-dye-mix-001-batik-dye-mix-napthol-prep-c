@@ -1,0 +1,2 @@
+# premium-batik-dye-mix-001-batik-dye-mix-napthol-prep-c
+Tired of failed batik dye batches because you can't track your napthol ratios or remember which mix worked last time? The Batik Dye Mix &amp; Napthol Prep Craft Lab is your digital command center for consistent, repeatable dyeing results.  This Notion template eliminates guesswork by centralizing all your dye mix formulas, napthol prep protocols, and b
